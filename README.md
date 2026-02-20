@@ -36,12 +36,12 @@ Here are some of my highlights:
 - 🍫 Chocolate & Confectionery Creations
 - 🎄 Seasonal & Themed Dessert Collections
 
-(Upload photos of your work and link them here!)
+
 
 ---
 
 ## 📫 Connect With Me
-📧 Email: your-email@example.com  
+📧 Email: your-njengacaroline4@gmail.com  
 📍 Location: Kenya  
 
 ---
