@@ -1,4 +1,4 @@
- Hi there 👋 I'm Carol Njenga
+ Hi there 👋 I'm Caroline Njenga
 
 ## 👩‍🍳 About Me
 Creative and detail-oriented Pastry Chef with strong skills in baking, cake decoration, dessert preparation, and food presentation. Passionate about producing high-quality pastries and desserts in fast-paced environments.
