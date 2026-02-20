@@ -41,7 +41,7 @@ Here are some of my highlights:
 ---
 
 ## 📫 Connect With Me
-📧 Email: your-njengacaroline4@gmail.com  
+📧 Email: njengacaroline4@gmail.com  
 📍 Location: Kenya  
 
 ---
